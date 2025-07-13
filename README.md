@@ -1,6 +1,6 @@
 <h2>不太灵影视官网入口 - 高清电影下载网站|下载|网页|打不开</h2>
 <p>不太灵影视是一个专注于提供高清影视资源下载和在线观看的公益网站，以其丰富的资源库、简洁无广告的界面以及快速的更新速度而受到影视爱好者的欢迎。该平台提供了从最新电影、电视剧到经典老片的多种影视资源，涵盖720p高清、1080p高清、蓝光原盘高清、4K高清等多种画质。此外，不太灵影视还提供了智能推荐功能，根据用户的浏览历史和偏好推荐相关影视作品，帮助用户发现更多优质内容。网站界面设计简洁明了，操作便捷，用户无需复杂的注册流程，即可直接浏览和下载资源。</p>
-<p><strong>一键访问：</strong><a href="https://www.xxsnav.com/sites/14557.html" target="_blank"><strong>不太灵影视最新网址</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://butailingyingshi.xxsnav.com/" target="_blank"><strong>不太灵影视最新网址</strong></a></p>
 <p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/" target="_blank"><strong>电子书/4K电影/无损音乐资源下载资源包</strong></a></p>
 <p><strong>一键访问：</strong><a href="http://ip.harmonylink.net/share/e82025" target="_blank"><strong>海外代理网络·可看蓝光4K影视</strong></a></p>
 <h3><strong>功能特点</strong></h3>
